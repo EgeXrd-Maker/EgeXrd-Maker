@@ -1,0 +1,4 @@
+- 👋 Hi, I’m EgeXrd
+- 👀 I'm just browsing
+- 🌱 I am trying to learn new information 
+- 💞️ Success Is My Best Goal
